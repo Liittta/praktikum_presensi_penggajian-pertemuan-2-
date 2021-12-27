@@ -1,1 +1,0 @@
-# raktikum_presensi_penggajian-pertemuan-2-
